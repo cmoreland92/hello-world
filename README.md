@@ -1,2 +1,3 @@
 # hello-world
 My first repository
+~~I am lonely.~~ There are many groups that I feel accountable to but few groups that feel accountable to me. I was born in a city I will never know. I grew up in a town I will never return to. I am a Veteran with wounds unseen. I am a single Dad with three small children, alone. I don't have a working car. I don't have a job. The person I have the most contact with can be cold and cruel. Truth be told I love her. She has a kind heart but it is weighed heavily down with the sadness that permeates her past. There is so much potential for her greatness. I hope she has the strength to achieve it. I hope I have the stregth to endure the journey. I must tend to myself first but I know I can do hard things. For I have done them. 
